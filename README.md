@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything Tech
 - 🌱 I’m currently learning frontend development
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me  Gmail= destinyosamudiamen96@gmail,com 
+- 📫 How to reach me Gmail: destinyosamudiamen96@gmail,com 
 - 😄 Pronouns: D D
 - ⚡ Fun fact: lover of sports..
 
